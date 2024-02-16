@@ -8,8 +8,8 @@ We are passionate about AI in education, machine translation, and voice recognit
 - 🌱 Currently, we're learning how to start an AI in education startup.
 - 💼 We're open to collaboration opportunities in the field of AI in education.
 - 📫 Feel free to reach us through:
-  - [LinkedIn]()
-  - [Telegram]()
+  - [LinkedIn](https://www.linkedin.com/in/kartal-ol/)
+  - [Telegram](https://t.me/Ai_KartalOl)
   - [Instagram](https://www.instagram.com/kartalol/)
   - [YouTube](https://youtube.com/@kartaloldotcom?si=bv9nkRVWu1a01qVm)
   - [X](https://twitter.com/Kartal_ol)
