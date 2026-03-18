@@ -39,7 +39,6 @@ You can also find our organization here:
 - [Telegram](https://t.me/Ai_KartalOl)
 - [Instagram](https://www.instagram.com/kartalol/)
 - [YouTube](https://youtube.com/@kartaloldotcom?si=bv9nkRVWu1a01qVm)
-- [X](https://twitter.com/Kartal_ol)
 - [Aparat](https://www.aparat.com/kartalol)
 
 ## Contact
